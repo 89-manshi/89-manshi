@@ -5,4 +5,3 @@
 - 💬 You can find me here https://www.linkedin.com/in/manshi-malik
 - 📫 How to reach me malikmanshi89@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact:i'll update after finding something funny🌝😂😂
